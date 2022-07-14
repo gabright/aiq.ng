@@ -1,2 +1,2 @@
-# aiq.ng
+# aiq.com
  
